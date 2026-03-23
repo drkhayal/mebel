@@ -1,1 +1,0 @@
-https://drkhayal.github.io
